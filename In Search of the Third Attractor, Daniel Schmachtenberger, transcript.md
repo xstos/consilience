@@ -1,4 +1,4 @@
-Trancript of https://www.youtube.com/watch?v=8XCXvzQdcug&t=5382s by Chris Christodoulou 
+Transcript of Daniel Schmachtenberger's talk https://www.youtube.com/watch?v=8XCXvzQdcug&t=5382s scraped by Chris Christodoulou 
 This transcript was ripped from the transcript box in youtube, dumped into excel as sentences, used Excel autofilter to remove timecodes/noise by hand, then broken into quarters to fit into the automatic punctuator at http://bark.phon.ioc.ee/punctuator
 
 Text follows:
