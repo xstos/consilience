@@ -6,4 +6,6 @@ I looked in my basket: two zucchinis, an onion, tomatoes, bread, and a bunch of 
 
 The dream faded, of course, but the feelings first of euphoria and then of self-restraint remain. I’ve thought of it often and recognize now that I was witness there to the conversion of a market economy to a gift economy, from private goods to common wealth. And in that transformation the relationships became as nourishing as the food I was getting. Across the market stalls and blankets, warmth and compassion were changing hands. There was a shared celebration of abundance for all we’d been given. And since every market basket contained a meal, there was justice."
 
+- Robin Wall Kimmerer, Braiding Sweetgrass
+
 https://www.goodreads.com/work/quotes/24362458-braiding-sweetgrass
