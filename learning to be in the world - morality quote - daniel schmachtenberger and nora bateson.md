@@ -1,4 +1,4 @@
-transcript excerpt from https://www.youtube.com/watch?v=zi5-90TnI3Y&t=5097s with Nora Bateson and Daniel Schmachtenberger
+Transcript excerpt from https://www.youtube.com/watch?v=zi5-90TnI3Y&t=5097s with Nora Bateson and Daniel Schmachtenberger.\
 This transcript was copied from the transcript box in youtube and run through the automatic punctuator at http://bark.phon.ioc.ee/punctuator
 
 ## Nora:
