@@ -6,7 +6,7 @@ Tomas: Okay, I should first of all mention that I had written the book together 
 
 Nate: Did those exist in France, Germany and the United States at that time?
 
-Tomas: No. Or not as such. No, not in France. This originally came from a German idea about how we, as humans, have the lifelong capacity to continually develop our inner capacities, our emotional and cognitive capacities. That was from the German Bildung philosophers. Philosophers like Schiller, Goethe, Herder von Humboldt, Heigl. And this is where the market comes in again as if we quantify all the things that our ancestors valued by parsing it into a dollar, and the dollar doesn't reward some of the things that you just said.
+Tomas: No. Or not as such. No, not in France. This originally came from a German idea about how we, as humans, have the lifelong capacity to continually develop our inner capacities, our emotional and cognitive capacities. That was from the German Bildung philosophers. Philosophers like Schiller, Goethe, Herder, Humboldt, Heigl. And this is where the market comes in again as if we quantify all the things that our ancestors valued by parsing it into a dollar, and the dollar doesn't reward some of the things that you just said.
 
 Nate: It's almost as if Scandinavia already had a people, planets, profit hierarchy 100 years ago.
 
