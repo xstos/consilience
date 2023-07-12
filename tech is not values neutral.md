@@ -7,3 +7,5 @@ to around 50:00
 2) "It codes a pattern of human behavior"
 
 https://consilienceproject.org/technology-is-not-values-neutral/
+
+https://www.linkedin.com/posts/danielschmachtenberger_technology-is-not-values-neutral-ending-activity-6947481444571127808-LXST/
