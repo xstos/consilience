@@ -1,4 +1,4 @@
-Transcript excerpt from Daniel Schmachtenberger's GITA talk: https://www.youtube.com/watch?v=nvAbKE8-jYA&t=2679s
+Transcript excerpt from Daniel Schmachtenberger's GITA talk: https://www.youtube.com/watch?v=nvAbKE8-jYA&t=2679s follows:
 
 
 I wrote a paper early on that talked about as long as the value of a tree is worth more dead than alive on people's balance sheets, or a whale is, we'll continue deforestation and whaling. And it's clear that the whale in the ocean is not on anybody's balance sheet and so leaving it doesn't economically benefit me in any way. If I leave it, it doesn't ensure someone else doesn't kill it, and if I do kill it, depending upon, it's five hundred thousand dollars worth of sellable whale meat. 
