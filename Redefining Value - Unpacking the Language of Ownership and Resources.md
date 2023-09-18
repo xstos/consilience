@@ -12,6 +12,6 @@ So there are so many constructs that we have that we take for granted as just hu
 
 So I mentioned that because the word resource is an inherently violent word. The way we think of it. The way we've defined it. Human Resources is: how do we see sentient human beings, who are somebody's baby, who are going to be on their deathbed reflecting upon their purpose in life, and if they use their time, how do we see them as a resource for a company that has a fiduciary responsibility to profit maximize. 
 
-They're, not fucking human resources, they're human beings. And talking about natural resources - is a whale a natural resource? Because it is if you're running a whaling boat. A whale's a natural resource. Is it any sentient animal?
+They're, not f#$king human resources, they're human beings. And talking about natural resources - is a whale a natural resource? Because it is if you're running a whaling boat. A whale's a natural resource. Is it any sentient animal?
 
 Is an ecosystem that we devastate a natural resource? Black people used to be natural resources - meaning part of the chattel the same way we treat cows. So the word and concept resource has to go. Like it just fundamentally the idea man's dominion over everything is here for us. If we can control it and extract it, it's about its utility value, rather than intrinsic value for us. At the heart of the ideas that has to go is that. So I want to throw out the concept of resource to begin with. And I want to say that words like mine and resource and like they're colonized colonizer-mind concepts.
