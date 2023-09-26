@@ -1,5 +1,8 @@
 Repost of https://www.linkedin.com/feed/update/urn:li:activity:7070814362940121088/
 
+By Rieki (Rye) Cordon
+https://www.linkedin.com/in/rieki-cordon777/
+
 okay, my entire worldview just shifted and need to share!
 
 researching for an upcoming series on designing bioregional scale regenerative economies and villages (videos coming out over the next year) and learned something absolutely mind boggling.
