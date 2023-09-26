@@ -6,7 +6,7 @@ A collection of notable quotes from various talks I've seen.
 - Nature vs nurture and psychopathy: https://www.theguardian.com/commentisfree/2014/jun/03/how-i-discovered-i-have-the-brain-of-a-psychopath
 - Generational trauma: https://www.scientificamerican.com/article/fearful-memories-passed-down/
 - How a troop of baboons retooled their culture: https://www.nytimes.com/2004/04/13/science/no-time-for-bullies-baboons-retool-their-culture.html
-- Plants are ingesting microbes directly from their roots (Jame White): https://youtu.be/Bg0CXHT6kQk?t=1150
+- Plants are ingesting microbes directly from their roots (James White): https://youtu.be/Bg0CXHT6kQk?t=1150
 
 **My clippings**:
 
