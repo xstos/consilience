@@ -1,4 +1,4 @@
-Erin Remblance's linkedin post follows https://www.linkedin.com/posts/erin-remblance_the-following-passage-from-christopher-ryan-activity-7088587082180268032-M6L_
+Erin Remblance's linkedin post follows [https://www.linkedin.com/posts/erin-remblance_the-following-passage-from-christopher-ryan-activity-7088587082180268032-M6L_](https://www.linkedin.com/posts/erin-remblance_the-following-passage-from-christopher-ryan-activity-7088587082180268032-M6L_)
 
 The following passage from Christopher Ryan’s Civilized to Death: The Price of Progress was referenced in the tweet below and I find it such a valuable insight and so interesting to consider:
 
