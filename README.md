@@ -17,3 +17,4 @@ A collection of notable quotes from various talks I've seen.
 - Trillion dollar trees: https://github.com/xstos/consilience/blob/main/the%20value%20of%20a%20tree.md
 - Dogmatic economic priesthood: https://github.com/xstos/consilience/blob/main/Steve%20Keen%20on%20The%20Role%20of%20Energy%20in%20Economic%20Theory.md
 - The price of progress: https://github.com/xstos/consilience/blob/main/civilized%20to%20death.md
+- The way of silence: https://www.pauljhowell.com/poetry/the-way-of-silence-ella-cara-deloria
