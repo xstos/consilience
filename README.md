@@ -7,6 +7,7 @@ A collection of notable quotes from various talks I've seen.
 - Generational trauma: https://www.scientificamerican.com/article/fearful-memories-passed-down/
 - How a troop of baboons retooled their culture: https://www.nytimes.com/2004/04/13/science/no-time-for-bullies-baboons-retool-their-culture.html
 - Plants are ingesting microbes directly from their roots (James White): https://youtu.be/Bg0CXHT6kQk?t=1150
+- The way of silence: https://www.pauljhowell.com/poetry/the-way-of-silence-ella-cara-deloria
 
 **My clippings**:
 
@@ -17,4 +18,3 @@ A collection of notable quotes from various talks I've seen.
 - Trillion dollar trees: https://github.com/xstos/consilience/blob/main/the%20value%20of%20a%20tree.md
 - Dogmatic economic priesthood: https://github.com/xstos/consilience/blob/main/Steve%20Keen%20on%20The%20Role%20of%20Energy%20in%20Economic%20Theory.md
 - The price of progress: https://github.com/xstos/consilience/blob/main/civilized%20to%20death.md
-- The way of silence: https://www.pauljhowell.com/poetry/the-way-of-silence-ella-cara-deloria
