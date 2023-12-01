@@ -1,4 +1,6 @@
-Transcript excerpt from Commonland's John D. Liu's intro in the following fireside chat: https://www.youtube.com/watch?v=f9F-lT5XxO0
+Transcript excerpt from the following fireside chat: https://www.youtube.com/watch?v=f9F-lT5XxO0
+
+by John D. Liu of Commonland ( https://commonland.com/ ) follows:
 
 Okay, so, um, you know, it's really a kind of, um, hard time for a lot of people right now in the world. There's quite a lot of anger and violence going on, and winter in the northern hemisphere is coming, so there's also the changes in the weather. So, the people who are homeless or the people who are hungry or the people who are fleeing from violence in different places are having a really hard time.
 
