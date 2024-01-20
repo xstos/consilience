@@ -18,7 +18,7 @@ https://books.google.ca/books?id=U5UJUChbuioC&pg=PA163&lpg=PA163&dq=%22For+examp
 
 https://books.google.ca/books?id=U5UJUChbuioC&pg=PA393&lpg=PA393&dq=%22In+other+words,+the+most+feminine+societies+(such+as+early+hoe/horticultural+societies)%22&source=bl&ots=5d8Wjk8rqq&sig=ACfU3U2CDrvT3c84YV0GAXTSEBqW2U9yNw&hl=en&sa=X&ved=2ahUKEwiryp-sqYmAAxWzlokEHSJvDW8Q6AF6BAgLEAM#v=onepage&q=%22In%20other%20words%2C%20the%20most%20feminine%20societies%20(such%20as%20early%20hoe%2Fhorticultural%20societies)%22&f=false
 
-excerpt from linedin post:
+excerpt from linkedin post:
 
 "New article from the Consilience Project on how technologies are not values-neutral but directly affect psychologies and cultures...and how those effects can be factored into the technology design process...and need to be if humanity is to do well moving forward. 
 
