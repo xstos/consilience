@@ -7,6 +7,7 @@ from here https://www.youtube.com/watch?v=Nkv5mpBA8o4&t=2204s to around 50:00
 "It codes a pattern of human behavior"
 
 https://consilienceproject.org/technology-is-not-values-neutral/
+
 https://consilienceproject.org/technology-is-not-values-neutral-ending-the-reign-of-nihilistic-design-2/
 
 https://www.linkedin.com/posts/danielschmachtenberger_technology-is-not-values-neutral-ending-activity-6947481444571127808-LXST/
