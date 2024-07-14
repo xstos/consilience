@@ -1,0 +1,11 @@
+excerpt from Ashley Hodgson's: https://www.youtube.com/watch?v=5IfVFkE4oHs
+
+"... how do these debt cycles work? This relates to what Peter Turchin calls the money pump or the Matthew principle. 
+
+For our purposes here, it basically starts with a compound interest system. At first, the system sucks money out of the bottom 20% of the income distribution, and that money moves upward in the income distribution toward people who are more likely to be creditors. 
+
+The problem is that the system eventually sucks that bottom 20% so dry that the line has to move up, and it has to start to suck dry the bottom 40% of the income distribution. This sort of continues and escalates until the bottom 90% are falling further and further behind. If you imagine from the perspective of somebody sitting at the 50th percentile, at first they may look at the bottom 20% who are being sucked dry and come up with reasons in their head why that's totally fine. They may think those people are not working hard, they're drunkards, or whatever. But eventually, once they are below the line, once the line has moved up such that they are falling further and further behind, they will realize, "Wait a second, this system is completely unjust." Someone who just had a bad year in crops or just got sick for a few months and fell a little bit behind will work really hard, do everything right, and still cannot catch up because of compound interest.
+
+That's, of course, going to raise the moral hackles of people who are looking at this system as it is. Eventually, when the line reached above the 90th percentile of the population, there was a violent revolution. The leaders forgave all debt, and the cycle continued. There is obviously a type of escalation that happens within one of these cycles. It's the escalation that culminates in the revolution. But there's also going to be a different type of escalation that happens over centuries, where the leaders start to recognize this pattern, start to see the revolution coming, and for the elite, that is dangerous. They want to do whatever they can to ward this off.
+So, what solutions do you have if the money pump is naturally moving resources in the direction of the elites? ..."
+
