@@ -1,0 +1,5 @@
+"The stubble or the litter, the plant material that we have in our harvesters (grain), nature involved these other very very clever things, they're called mobile biodigesters. Because they're trying to do just what you're saying. They're trying to get this stubble, this plant material back into the soil and they developed these mobile biodigesters. And there were big bags called rumens, full of bacteria, but these things had to move around and since they didn't have wheels, they put legs on these things, and they've got a business end with ears and eyes and a mouth and they've got a business end out here which is putting bio fertilizer down and stable soil carbon and these things actually produce protein. Okay? So nature basically evolved these mobile biodigesters deliberately to do what you just said to create optimum bacterial conditions to convert these cardboard litters[1] because if we didn't do that all this litter goes up as fire." - Walter Jehne
+
+https://youtu.be/DQN9t-g2J-0?t=2749
+
+[1]cellulose takes upwards of 15K years to break down without microbes
