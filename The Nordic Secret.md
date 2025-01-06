@@ -1,3 +1,5 @@
+Please note, this transcript contains potential misrepresentations. Lene Andersen has released a statement to that effect: https://www.linkedin.com/posts/lenerachelandersen_statement-by-lene-rachel-andersen-about-the-activity-7275880252202008576-u3mU https://www.youtube.com/watch?v=P8C9A-9P-pQ
+
 Transcript excerpt from [Tomas Björkman: "Metamodernism and The Future" | The Great Simplification #48](https://youtu.be/TJa_6AHjLw0?t=3611)
 
 Nate: Your second book Tomas was called The Nordic Secret. Let's just start with just what is the Nordic secret?
