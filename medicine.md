@@ -28,7 +28,7 @@ And then, after that happened with my grandson, I spoke to some elders and I tol
 
 And he said, "Yes, of course." He said, "When you're putting tobacco down, that's a time for your prayer. That's a time for you to ask for permission to take them. And if they're not agreeable to that, they will let you know.
 
-==================================================================================================================
+======================================================================================
 
 "Okay, I want to give another example of how we show respect for the land, and that's about the language that we use. Even if we use the English language, we can still use the language in a very respectful way.
 
