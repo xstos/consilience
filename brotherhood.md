@@ -26,8 +26,7 @@ There have been times when we all wanted so desperately to feel a reassuring han
 
 I am afraid my culture has little to offer yours. But my culture did prize friendship and companionship. It did not look on privacy as a thing to be clung to, for privacy builds walls and walls promote distrust. My culture lived in a big family community, and from infancy people learned to live with others.
 
-My culture did not prize the hoarding of private possessions, in fact, to hoard was a shameful thing to do among my people. The Indian looked on all things in nature as belonging to him and he expected to share them with others and to take only what he needed.
-Everyone likes to give as well as receive. No one wishes only to receive all the time. We have taken something from your culture…I wish you had taken something from our culture…for there were some beautiful and good things in it.
+My culture did not prize the hoarding of private possessions, in fact, to hoard was a shameful thing to do among my people. The Indian looked on all things in nature as belonging to him and he expected to share them with others and to take only what he needed. Everyone likes to give as well as receive. No one wishes only to receive all the time. We have taken something from your culture…I wish you had taken something from our culture…for there were some beautiful and good things in it.
 
 Soon it will be too late to know my culture, for integration is upon us and soon we will have no values but yours. Already many of our young people have forgotten the old ways. And many have been shamed of their Indian ways by scorn and ridicule. My culture is like a wounded deer that has crawled away into the forest to bleed and die alone.
 
