@@ -1,6 +1,10 @@
 transcript excerpt from "Medicine Wheel Teaching" https://youtu.be/oGC1EncFa50?t=661 follows:
 
-Well this one time we went into the bush, and we were um collecting willowed willow trees and willow branches. And so he carried the tobacco, but he was running up on the trail ahead of me.
+One of the ways that we show respect for the land is to listen to the land. We acknowledge the land as our first teacher.
+
+And I like to tell the story about when I was working with my little grandson when he was about three years old. And he always came in the bush with me when I went harvesting, and he often carried the tobacco for me, and he often was the one to put the tobacco down. 
+
+Well this one time we went into the bush, and we were um collecting willow trees and willow branches. And so he carried the tobacco, but he was running up on the trail ahead of me.
 
 And I saw this really nice clump of willow trees beside me, so I called him back and I said, "Shane, can you come back? Bring the tobacco."
 
