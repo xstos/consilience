@@ -1,6 +1,6 @@
-GREENING THE SCREEN
-Our Planet Magazine - 2001
-John Dennis Liu - Director of the Environmental Education Television Project for China.
+GREENING THE SCREEN  
+Our Planet Magazine - 2001  
+John Dennis Liu - Director of the Environmental Education Television Project for China.  
 
 Imagine the ability to communicate with everyone on Earth,
 simultaneously and instantaneously. Imagine the ability to
