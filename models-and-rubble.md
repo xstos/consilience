@@ -1,0 +1,2 @@
+"Now, where do you look for models? Where do you go? The answer is so obvious. You go to nature. Nature has been playing this game for three billion years on this planet. We have been playing the game—we, the apostles of Christian scientism—for about 2,000 years. Nature has an economy, an elegance, a style that, if we could but emulate it, we could rise out of the rubble that we are making of the planet."  
+\- Terence McKenna
